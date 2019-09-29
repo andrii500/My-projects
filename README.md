@@ -1,1 +1,1 @@
-# andrii500.github.io
+# github.io
